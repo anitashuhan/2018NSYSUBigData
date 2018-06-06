@@ -1,2 +1,1 @@
-# 2018NSYSUBigData
-財管碩一 羅樹涵 M064030009
+﻿![img](https://ppt.cc/fwOnex@.jpg)
